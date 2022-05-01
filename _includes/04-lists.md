@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+1. Hearts ♥️
+2. Moons 🌑
+3. Stars ⭐
+4. Clovers 🍀
